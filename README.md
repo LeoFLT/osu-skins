@@ -1,2 +1,1 @@
-# SUWOO
-WAT DIS
+# Check Releases for the skins
