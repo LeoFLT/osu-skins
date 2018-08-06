@@ -1,1 +1,1 @@
-# Check the Releases tab the skins
+# Check the Releases tab for dem skins
