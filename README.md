@@ -1,1 +1,1 @@
-# Check the Releases tab for the skins
+# Check Releases tab for the skins
